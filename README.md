@@ -8,6 +8,6 @@ I prefer if you whisper me to interact, especially if I have a busy status (whic
 
 No real DNI, I'll hide who I want to. 
 
-Check out my <a href="[url](https://jetboymachine.straw.page/)">strawpage</a> for more information about me
+Check out my <a href="https://jetboymachine.straw.page/">strawpage</a> for more information about me
 
-<img src="[url]}(https://file.garden/ZRc1mLUQNGkxIJ4W/df67753a-935b-4556-b642-22037afbf0c5.__CR0_0_600_450_PT0_SX600_V1___-removebg-preview.png)"></img>
+<img src="https://file.garden/ZRc1mLUQNGkxIJ4W/df67753a-935b-4556-b642-22037afbf0c5.__CR0_0_600_450_PT0_SX600_V1___-removebg-preview.png"></img>
