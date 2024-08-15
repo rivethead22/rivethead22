@@ -8,7 +8,7 @@ I prefer if you whisper me to interact, especially if I have a busy status (whic
 
 No real DNI, I'll hide who I want to. 
 
-DISCLAIMER I am not an incest liker I don't ship incest ships and whatever i was just doing that to make some weird columbiner ponies uncomfortable because it's funny as fuck why not focus on actual issues going on in the world instead of bothering me about it on my strawpage ty
+DISCLAIMER I am not an incest liker I don't ship incest ships and whatever i was just doing that to make some weird columbiner ponies uncomfortable because it's funny as fuck. why not focus on actual issues going on in the world instead of bothering me about it on my strawpage ty
 
 Check out my <a href="https://jetboymachine.straw.page/">strawpage</a> for more information about me
 
