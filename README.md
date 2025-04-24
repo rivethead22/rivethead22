@@ -12,4 +12,4 @@ Also I have a girlfriend (a real one) so keep that in mind!!!!!!!!!!!!!!!!!!!
 
 Check out my <a href="https://jetboymachine.straw.page/">strawpage</a> for more information about me
 
-<img src="https://file.garden/ZRc1mLUQNGkxIJ4W/df67753a-935b-4556-b642-22037afbf0c5.__CR0_0_600_450_PT0_SX600_V1___-removebg-preview.png](https://file.garden/ZRc1mLUQNGkxIJ4W/PSYCHOPOMP_Plush_Toy-SV4-P-1_1000x.png.webp"></img>
+<img src="https://file.garden/ZRc1mLUQNGkxIJ4W/PSYCHOPOMP_Plush_Toy-SV4-P-1_1000x.png.png"></img>
