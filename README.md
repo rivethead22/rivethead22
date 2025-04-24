@@ -1,4 +1,4 @@
-Hey, I'm Rivet but you can call me Ryan. This is my pony town info so feel free to completely ignore if you're just coming on here randomly. 
+Hey, I'm Ryan. This is my pony town info so feel free to completely ignore if you're just coming on here randomly. 
 
 I am a guy, but IDGAF if you call me she/her if my skin is a female character I won't take it as misgendering.
 
@@ -8,6 +8,8 @@ I prefer if you whisper me to interact, especially if I have a busy status (whic
 
 No real DNI, I'll hide who I want to. 
 
+Also I have a girlfriend (a real one) so keep that in mind!!!!!!!!!!!!!!!!!!!
+
 Check out my <a href="https://jetboymachine.straw.page/">strawpage</a> for more information about me
 
-<img src="https://file.garden/ZRc1mLUQNGkxIJ4W/df67753a-935b-4556-b642-22037afbf0c5.__CR0_0_600_450_PT0_SX600_V1___-removebg-preview.png"></img>
+<img src="https://file.garden/ZRc1mLUQNGkxIJ4W/df67753a-935b-4556-b642-22037afbf0c5.__CR0_0_600_450_PT0_SX600_V1___-removebg-preview.png](https://file.garden/ZRc1mLUQNGkxIJ4W/PSYCHOPOMP_Plush_Toy-SV4-P-1_1000x.png.webp"></img>
